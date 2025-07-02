@@ -8,3 +8,4 @@ This is a description of a new technology
 /
 Be included in email allowlist
 opensea is coming!
+I hope 7,20th
