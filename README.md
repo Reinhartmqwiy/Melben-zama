@@ -10,3 +10,5 @@ Be included in email allowlist
 opensea is coming!
 I hope 7,20th
 Why is not ver？
+--> next
+I thin more than 30min
